@@ -1,4 +1,4 @@
-# 
+# Ultimato arbitrage trading bot fluxo de trabalho for Mac OS | Elite arbitrage trading bot fluxo de trabalho for PC Windows. Featuring estratégia de reversão à média and pools de liquidez DEX — optimized for maximum performance.
 
 
 
